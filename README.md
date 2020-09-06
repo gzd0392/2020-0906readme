@@ -1,3 +1,3 @@
-# 20200601 Assignment readme
+# 20200906 Assignment readme
 20203027 관지동 GUANZHIDONG
 
